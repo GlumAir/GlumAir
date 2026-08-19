@@ -1,6 +1,6 @@
 # Monsyyy19
 
-### Former weeb. Battle rap. Games. Programming. Blablabla.
+### Former weeb. Games. Programming. Blablabla.
 
 ---
 
