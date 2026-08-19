@@ -15,7 +15,6 @@ Usually meh.
 ### Things I Like
 
 - 🎮 Games
-- 🎤 Battle rap
 - 💻 Programming
 - 📺 Anime 
 - 💀 MEMES
